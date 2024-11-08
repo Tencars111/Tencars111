@@ -2,7 +2,7 @@
 -  I’m interested in math and incremental games
 -  I’m currently learning not really anything
 -  I’m looking to collaborate on nothing
--  How to reach me : reddit, ig
+-  How to reach me : reddit
 -  Pronouns: he/him
 -  Fun fact: ...
 
